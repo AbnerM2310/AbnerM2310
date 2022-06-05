@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AbnerM2310
+- 👋 Hi, I’m Abner Montenegro
 - 👀 I’m interested in  el ajedrez , leer, hacer ejercicio
 - 🌱 Actualmente curso la Lic. Ingenieria Biomedica
 - 📫 How to contactarme Montenegroabner63@gmail.com  
